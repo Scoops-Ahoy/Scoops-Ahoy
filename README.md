@@ -1,4 +1,4 @@
-## Hi there 👋
+## ![me and my bf core](https://i.pinimg.com/736x/26/9b/c2/269bc253d9540c6ba966fcdc9155b62c.jpg)
 
 <!--
 **Scoops-Ahoy/Scoops-Ahoy** is a ✨ _special_ ✨ repository because its `README.md` (this file) appears on your GitHub profile.
